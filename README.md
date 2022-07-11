@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://a.uguu.se/JdgoBrk.jpg" alt="Hinata-Md" width="100"/>
+<img src="https://i.pinimg.com/564x/b0/dd/83/b0dd8366915bd19180e26813a1400caf.jpg" alt="Hinata-Md" width="100"/>
 
 
 </p>
